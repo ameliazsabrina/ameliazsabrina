@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ameliazsabrina
-- 👀 I’m interested in Web Development!
+- 👀 I’m (so far) interested in Web Development!
 - 🌱 I’m currently majoring Informatics at Universitas Islam Indonesia
 - 📫 Reach me at LinkedIn: Amelia Zakiya Sabrina
 - 😄 Pronouns: She/Her
